@@ -3,3 +3,4 @@ Esse Tico eu não sei não!!!
 Tico, volte pro psicologo!!! 
 um pouquinho
 mais um pouquinho
+só mais um pouquinho
